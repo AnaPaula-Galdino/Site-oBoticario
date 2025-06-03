@@ -1,2 +1,3 @@
 # Site-oBoticario
-Para o dia 25/09.
+Fins academicos
+Eniac - Centro Universitário Academico
